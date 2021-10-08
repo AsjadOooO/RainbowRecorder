@@ -5,6 +5,8 @@
 
 - Example if you wanna get an clip of your game shot or doing some work and you want the one clip from it then where Rainbow Recorder come with it just click the start option and   your will start recording
 
+- We have 30+ star but i don't why my account got flagged
+
 
 
 ### Getting Started
